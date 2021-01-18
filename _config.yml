@@ -6,7 +6,7 @@
 name: A Makers Journey Through The Darkness
 
 # Short bio or description (displayed in the header)
-description: My Journy Through Deep Depression Post Suicide Intervention
+description: My Journy Through Deep Depression and Post Suicide Intervention
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
 avatar: https://avatars2.githubusercontent.com/u/4115776?s=60&v=4
@@ -25,10 +25,10 @@ footer-links:
   instagram: themakersworkbench
   linkedin:
   pinterest:
-  rss: # just type anything here for a working RSS icon
+  rss:  RSS
   twitter:
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
-  youtube: # channel/<your_long_string> or user/<user-name>
+  youtube: channel/UCRGqoLoHbrnAUZuMbgJ9DJw # channel/<your_long_string> or user/<user-name>
   googleplus: # anything in your profile username that comes after plus.google.com/
 
 
