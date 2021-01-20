@@ -4,7 +4,7 @@ title: Day 2 - One Step At A Time
 ---
 
 
-I want to take a moment to rewind things to last night. Mer stopped by to pick up some things she forgot, and to see me for a minute. Lucy had been sad most of the day as was definitely grieving over her pack being gone. Since Mer works in the animal care field, I asked her if there was anything I could do to help cheer Lucy up. We talked about it for a few minutes and she decided to bring Bowie, our little black and tan hound back over. This warmed my heart so much, because I have missed him dearly. So I have that to look forward to this evening. Now on to today. 
+I want to take a moment to rewind things to last night. Mer stopped by to pick up some things she forgot, and to see me for a minute. Lucy had been sad most of the day and was definitely grieving over her pack being gone. Since Mer works in the animal care field, I asked her if there was anything I could do to help cheer Lucy up. We talked about it for a few minutes and she decided to bring Bowie, our little black and tan hound back over. This warmed my heart so much, because I have missed him dearly. So I have that to look forward to this evening. Now on to today. 
 
 I woke up this morning to my alarm ringing 20-minutes earlier than yesterday. Setting the alarm 20-minutes early was part of my plan to return to a 6am wakeup time.  Rolling over, I stared at Mer's side of the bed for a few minutes while I ran through the list of things in my head that I needed to do today. Her not being there was still saddening, but I know in my heart that things will be ok. 
 
