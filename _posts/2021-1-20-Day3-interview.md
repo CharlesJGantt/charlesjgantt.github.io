@@ -35,4 +35,4 @@ That's going to wrap it up for today. I know I say this in every blog post, but 
 Today I'm thankful for my mother. She's been by my side throughout this ordeal, and she has been that rock that held me together when my foundation has been unstable these last few days. She has lifted me up in prayer constantly, and has constantly reiterated her faith in me as well as her confidence that I can make it through this. I'm truly blessed to have a mother that cares as much as she does. If you read this, I love you momma. 
 
 
-### If you are feeling suicidal, or even remotely thinking about it, please call the Suicide Hotline at 800-273-8255. They are there to help, and they understand what you are going through. 
+### If you are feeling suicidal, or even remotely thinking about it, please call the Suicide Hotline at 800-273-8255. They are there to help, and they understand what you are going through.
