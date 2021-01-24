@@ -19,11 +19,11 @@ I drove home pretty excited as I used to play a little when I was a teenager, bu
 Last night was the latest I have stayed up in over a week, and I'm definitely paying for it this morning. I apologize for this update being late, but here it is. Thanks again for following along with my journey through the toughest time in my life. I appreciate all the love and support from everyone. 
 
 
-
 ## Today I'm Thankful For
 
 
 Today I'm thankful for life-long friends. Spending some time tonight with Squirrel and his wife was a breath of fresh air (for lack of better words) and I really enjoyed myself. Like I mentioned above, I've known squirrel my whole life, and we have never once had any sort of falling out, never had a real argument, and we've always been there for each other. He is one of the very few people left in my life who knows how I grew up, and he knows how much that "neighborhood" means to me. Whenever I want to go fishing for a few hours, I simply have to drive over to his house, put my boat in the water, and no one says a word about it, and similarly, if I just want to hangout and talk for a few hours, I simply need to show up. I'm forever grateful to have Squirrel and his wife in my life. 
+
 
 ## If you are feeling suicidal, or even remotely thinking about it, please call the Suicide Hotline at 800-273-8255. They are there to help, and they understand what you are going through.
 
