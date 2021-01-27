@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Denied Mental Health Services
+title: Rant - Denied Mental Health Services
 ---
 
 So this journal entry is not part of my daily updates, but is going to serve as a place for me to rant a little about the broken mental health system in this country. 
